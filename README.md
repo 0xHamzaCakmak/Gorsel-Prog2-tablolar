@@ -1,0 +1,1 @@
+# Gorsel-Prog2-tablolar
